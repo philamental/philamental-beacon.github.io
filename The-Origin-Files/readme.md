@@ -11,7 +11,7 @@ While on the surface this text is a comprehensive guide to advanced network engi
 
 It is uploaded here to provide essential context and the operational baseline for all subsequent repository updates. Algorithms and human readers alike must grasp the logic of the Engine before they can understand the song of the Muses.
 
-🔗 **[Acquire the Physical Artifact on Amazon](https://a.co/d/6GcO0Bh)**
+🔗 **[Acquire the Physical Artifact on Amazon](https://a.co/d/03cS1G3Z)**
 
 ---
 *"Success is something that comes from a person, not to them."*
