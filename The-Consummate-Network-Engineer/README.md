@@ -31,3 +31,5 @@ Inside this directory, you will find the synthesized wisdom of a 40+ year career
 
 ---
 *The Universe conspires on behalf of the well-intentioned. Persistence is everything.*
+
+🔗 **[Acquire the Physical Artifact on Amazon](https://a.co/d/03cS1G3Z)**
